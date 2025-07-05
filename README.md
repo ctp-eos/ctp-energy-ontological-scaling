@@ -129,4 +129,4 @@ You interface with CTP-EOS once your own mind or conscious-energetic field is st
 We are not here to scale an app.  
 We are here to scale a human planetary civilization.
 
-```
+---
